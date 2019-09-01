@@ -27,3 +27,9 @@ PT_BR: Me emprestou seu tablet, mesmo sabendo que poderia se tornar
 um peso de papel
 
 A todos os outros que eu tenha esquecido de mencionar 
+
+
+Pedido. Uusuarrio
+Porfavo eu suplico a vc que continue trabalhando nessa ROM maravilhosa. Pleaseeeee pstglia, EU tenho um sm t113nu e nunca achei q teria CR pra esse tablet. Fiquei muito feliz quando pesquisando recentemente o descobri. Ja esta rodando em MEU tablet mas EU quero ajudar a melhora-la eu me disponilizarei para reports e ajuda
+
+Muito obrigadoo
